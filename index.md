@@ -1,4 +1,4 @@
-# Word, Spirit & Wisdome
+# Word, Spirit & Wisdom
 
 ## <span style="color: #459DD1"><u>Intro:</u></span>
 
@@ -44,7 +44,7 @@ The strength of the word. With many words combine, you'll have a speech, words
 - The word has/need unity, in order to operate - Gen 11
 - Confirmation of minimal 2 people - Gen 11
 - accomplishments - Gen 11
-- Promise - Whenever you speak out a word, there's a certain **promise** attached to it. You expect it to come to fullfillment
+- Promise - Whenever you speak out a word, there's a certain **promise** attached to it. expectation
 - You **passes** on the word, it can be **generations**
 - You have to understand the context
 ```
@@ -81,60 +81,40 @@ Ruach H7307: "Air, breath, wind"
 - De heilige geest moet dan eerst om je heen zijn, just like Genesis 1:2
 Isaiah 32: 15 Until the spirit be poured upon us from on high, and the wilderness be a fruitful field, and the fruitful field be counted for a forest. -> Galataians 5: fruits of the spirit
 
-- How to receive the spirit
-- Tabernacle - where are you
-       - James 4:6-10 -> Benjamites - Judges 20:26-27 
-       - Stand still
-       - Broken spirit
+### Combined - Questions?
+```
+- What is your word for  that period and how do yu know it? -> Let there be light
+- Life according to it
+- What do you want to be related to? lik humblnes of Job
+```
 
+- How to receive the spirit
+- Stand still
+> Brain Dump
+- Set yourself apart
+       - no Phone/TV for a week
+       - Spiritual Vegi - <span style="color:red">some **Scripture** text</span>
+
+- Tabernacle - alter where are you
+       - Broken spirit - James 4:5-10 -> Benjamites - Judges 20:26-27 
+- Affirmation - Weak? Songs/Read/Youtube       
+- PRAY
+Keep it simple!
+REPEAT - Paul 3 years
 
 # <span style="color: #459DD1"><u>In practise:</u></span>
 
-```
-Most of the time, Elohim speaketh to us - Math 13:18-23
-1. We are like the law of nature, we just obey and it will manifest
-2. We will be between the torns and the word will taken away
-
-- Takes time, Paul had 3 three years, messaiah 30 years, noah over 40 years
-- Simplicity
 - Spirit of Descernment
-- Good perperation is half work done
-- To Feed
-```
 
-### Combined - Questions?
-- Welk woord in die periode voor jou schikt & uit zal komen'
-- Tijd bestek - dag 1 let there be light, dag 2 let there be animals
-- Zo is het ook in ons leven
-- Je moet weten wat geactiveerd is in je leven & je zult daarna toe moeten handelen
-- In die periode
-- How do you know your word of that period - alter
-- Ask and ye shall receive it
-- What if you're weak/emotionally broken, how can you overcome it
-       - set yourself apart and listen to songs - Simplicity
-- Spirit of Descernment
-- What do you want to be related to? lik humblnes of Job
-
-### Applicable: 
-- Brain Dump
-- Set yourself apart - releftec 
-       - no Phone/TV for a week
-       - Spiritual Vegi - <span style="color:red">some **Scripture** text</span>
-- Know your position in comparison with the tabernacle
-- Affirmation
-- Broken Spirit
-- Stand still
-
-### Assignment
 
 # <span style="color: #459DD1"><u>Conclusion:</u></span>
+- Most of the time, Elohim speaketh to us - Sower parrable - Math 13:18-23
 
 - What if Elohim doesn't decide to backup your life with his words
+
+- new anoiting is a new sacrifice, but
+
 - The holy spirit on Acts 2. It's a act like in Genesis
-```
-new anoiting is a new sacrifice
-```
-- Je herdenkt als het ware elke dag opnieuw wat jouw purpose is
 
 May the Elohim peace be with you all - Romans 15:33
 
