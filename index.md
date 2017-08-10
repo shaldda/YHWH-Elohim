@@ -3,13 +3,19 @@
 ## <span style="color: #459DD1"><u>Intro:</u></span>
 
 **Thank Elohim, forfathers**
+
 <u>The #human voice is a #instrument we all #play. It's probably the most powerful sound in the #world, because it's the only one that can start a #war or say "I #love you". </u>
 
 Wisdom of Solomon
+
 Heart of David
+
 Courage of Abraham
+
 Strength of Samson
+
 Faith of Timothy
+
 Humbleness of Job
 
 **Essence:**
