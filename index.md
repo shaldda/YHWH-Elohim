@@ -24,6 +24,7 @@ Humbleness of Job
 - If you have your word, you can focus and be productive
 - The importancy of the spirit of descernment
 - How important it is to hear from ELOHIM - seek for prophecy
+- This is a session of opening up, Yesertday I spoke with Jeffrey
 
 **Outline:**
 - Word
@@ -39,6 +40,7 @@ Let's look at the construction of "Word".
 
 - Not Torah, just the simplified meaning like "Love Your neighbour as yourself"
 - To Focus
+	- At moment of weakness
 
 #### The power of the word
 <span style="color: #D95D61">**Genesis 11:1-9**</span> - 
@@ -87,22 +89,26 @@ Ruach H7307: "Air, breath, wind"
 - De heilige geest moet dan eerst om je heen zijn, just like Genesis 1:2
 Isaiah 32: 15 Until the spirit be poured upon us from on high, and the wilderness be a fruitful field, and the fruitful field be counted for a forest. -> Galataians 5: fruits of the spirit
 
+- How to receive the spirit
+	- The story of the Levite Ho
+- Tabernacle - alter where are you
+       - Broken spirit - James 4:5-10 -> Benjamites - Judges 20:26-27
+
 ### Combined - Questions?
+GROUP
 ```
 - What is your word for  that period and how do yu know it? -> Let there be light
 - Life according to it
 - What do you want to be related to? lik humblnes of Job
 ```
-
-- How to receive the spirit
 - Stand still
-> Brain Dump
+		- Brain Dump
+- Look at your relationship with you and your close ones and school/work
+
+## After Today
 - Set yourself apart
        - no Phone/TV for a week
        - Spiritual Vegi - <span style="color:red">some **Scripture** text</span>
-
-- Tabernacle - alter where are you
-       - Broken spirit - James 4:5-10 -> Benjamites - Judges 20:26-27 
 - Affirmation - Weak? Songs/Read/Youtube       
 - PRAY
 Keep it simple!
