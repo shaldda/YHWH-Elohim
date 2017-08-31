@@ -102,8 +102,9 @@ GROUP
 - What do you want to be related to? lik humblnes of Job
 ```
 - Stand still
-		- Brain Dump
+	- Brain Dump
 - Look at your relationship with you and your close ones and school/work
+- Source of strength
 
 ## After Today
 - Set yourself apart
@@ -113,6 +114,7 @@ GROUP
 - PRAY
 Keep it simple!
 REPEAT - Paul 3 years
+- Battle of the mind
 
 # <span style="color: #459DD1"><u>In practise:</u></span>
 
